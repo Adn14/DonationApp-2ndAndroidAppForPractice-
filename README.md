@@ -1,0 +1,1 @@
+# DonationApp-2ndAndroidAppForPractice-
